@@ -1,4 +1,4 @@
-# CS2Data.Info
+# [CS2Data.Info](https://CS2Data.Info)
 
 
 # Follow us
