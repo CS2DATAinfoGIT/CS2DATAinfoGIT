@@ -1,4 +1,4 @@
-# CS2Data.Info coming soon
+# CS2Data.Info
 
 
 # Follow us
